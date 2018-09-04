@@ -8,6 +8,7 @@ The "Plus" simply means it is an additional perspective on recovery and is not n
 
 ## Step 1: Admitted our core beliefs were unhelpful
 
+### Our beliefs create our feelings
 Right now your feelings are being determined by your beliefs. For example, you may believe:
 - "I am not good enough"
 - "I am unworthy"
@@ -15,9 +16,10 @@ Right now your feelings are being determined by your beliefs. For example, you m
 - "Life is meaningless and pointless"
 - "I shouldn't be here"
 
+### Addiction is to escape feelings
 Addictions tend to be used to escape an intolerable reality - our feelings and how we are experience life. Whether the substance is alcohol, drugs, food, sex, love, work, the motive tends to be the same - to numb or escape.
 
-
+### How recovery happens
 Using the Human Experiential Model, we experience life on five major levels:
 - Spiritual (core beliefs)
 - Volitional (decision making)

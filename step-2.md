@@ -28,13 +28,20 @@ If we change our core beliefs, we then impact our decision making, which then af
 This is how recovery happens!
 
 ### Q1) What are your beliefs about:
-- yourself
-- the meaning of life
-- the world
-- other people
+- yourself?
+- the meaning of life?
+- death?
+- the world?
+- people who have made you angry?
 
-### Q2) How are these beliefs not serving you?
+### Q2) How do these beliefs make you feel?
 
-### Q3) How do these beliefs make you feel?
+### Q3) Think about all the people, things, institutions in your life who you are angry towards today.
+- How does it not serve you to carry resentment and anger today?
+- Everyone is doing the best they can with their available resources. Could that also be true for those you resent?
+- Does anyone MAKE you feel angry, or are you CHOOSING to be angry?
+- What is your part in creating the resentment or scenarios? Could it be choosing to be angry today?
+- How much happier and freer would you be if you could let go of this anger and resentment?
+- Would you be willing to let go of this anger and resentment?
 
 ### Q4) Assuming these beliefs are not serving you and are causing pain, would you be willing to change them?

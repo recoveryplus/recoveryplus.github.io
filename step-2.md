@@ -34,7 +34,7 @@ This is how recovery happens!
 - the world?
 - people who have made you angry?
 
-### Q2) How do these beliefs make you feel?
+### Q2) How do these beliefs make you feel? How do they no longer serve you?
 
 ### Q3) Think about all the people, things, institutions in your life who you are angry towards today.
 - How does it not serve you to carry resentment and anger today?

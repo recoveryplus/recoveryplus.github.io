@@ -29,12 +29,16 @@ This is how recovery happens!
 
 ### Q1) What are your beliefs about:
 - yourself?
-- the meaning of life?
+- the meaning of your life?
 - death?
 - the world?
-- people who have made you angry?
+- other people in general?
+- God?
 
-### Q2) How do these beliefs make you feel? How do they no longer serve you?
+### Q2) 'Our beliefs determine our thinking, feelings and actions' How do these beliefs make you:
+- Think?
+- Feel?
+- Act?
 
 ### Q3) Think about all the people, things, institutions in your life who you are angry towards today.
 - How does it not serve you to carry resentment and anger today?

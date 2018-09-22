@@ -38,8 +38,9 @@ This is how recovery happens!
 
 ### Q3) Think about all the people, things, institutions in your life who you are angry towards today.
 - How does it not serve you to carry resentment and anger today?
-- Everyone is doing the best they can with their available resources. Could that also be true for those you resent?
+- 'Everyone is doing the best they can with their available resources.' Could that also be true for those you resent?
 - Does anyone MAKE you feel angry, or are you CHOOSING to be angry?
+- 'Empowerment comes via responsibility'. How does being resentful disempower you?
 - What is your part in creating the resentment or scenarios? Could it be choosing to be angry today?
 - How much happier and freer would you be if you could let go of this anger and resentment?
 - Would you be willing to let go of this anger and resentment?

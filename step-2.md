@@ -51,6 +51,8 @@ i) Write a list of who or what are you angry towards, and why. Then for each res
 
 - **COMPASSION**: Everyone is doing the best they can with the resources they have available. Is it possible those you are angry towards are spiritually and/or mentally sick? Is there such thing as a perfect person? Are we all imperfect beings who have made mistakes in our lives? How might you practice compassion?
 
+- **UNDERSTANDING**: Nobody is truly broken; everyone has a reason for the way that they are and the way that they behave. Their past programming may be helpful or unhelpful. What reasons may have driven this person's actions?
+
 - **PERSPECTIVE**: How might your actions be perceived by those you are angry towards? How may have you harmed them?
 
 - **PRIORITIES**: How much will this resentment matter at the end of your life? What other things might be much more important than this resentment?
@@ -60,6 +62,8 @@ i) Write a list of who or what are you angry towards, and why. Then for each res
 - **EMPOWERMENT**: It disempowers you to let others control how you feel. How could you take back this control?
 
 - **ACCEPTANCE**: We cannot change the past. How can you accept what has happened? How would it feel to let go of this anger?
+
+- **ECONOMICS**: If you are going to get revenge, then you'd better dig two graves. What might be the cost of getting revenge? Eg. money, time, energy, prison sentence. And what might be the gain of letting go? Eg. more time, more money, more energy.
 
 
 ii) Write a list of who or what you are fearful of, and why. Then for each fear, apply at least one of the tools for reducing fear.

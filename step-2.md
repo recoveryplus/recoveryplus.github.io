@@ -65,13 +65,20 @@ i) Write a list of who or what are you angry towards, and why. Then for each res
 
 - **ECONOMICS**: If you are going to get revenge, then you'd better dig two graves. What might be the cost of getting revenge? Eg. money, time, energy, prison sentence. And what might be the gain of letting go? Eg. more time, more money, more energy.
 
+- **STORY DECONSTRUCTION**: What story or meaning might have you made up about yourself because of this person's actions? For example, perhaps you might believe that you are a weak, that you are a victim, or that you are not good enough. Is this story really true? If not, can you let it go?
 
 ii) Write a list of who or what you are fearful of, and why. Then for each fear, apply at least one of the tools for reducing fear.
 
 #### Tools for Reducing Fear
-- FAITH: Faith is the opposite of fear. What or who can you believe in? How can you practice faith?
-- RATIONALITY: Realistically speaking, what is the absolute worst that can happen?
-- PERSPECTIVE: All fear originates back to the Original Fear - the fear of death.
+- **FAITH**: Faith is the opposite of fear. What or who can you believe in? How can you practice faith?
+
+- **RATIONALITY**: Realistically speaking, what is the absolute worst that can happen?
+
+- **PERSPECTIVE**: All fears originate back to the Original Fear - the fear of death. What is your belief about death? What is the meaning of your life?
+
+- **STORY DECONSTRUCTION**: What is the story that you are telling yourself right now? How true is it? Can you let it go?
+
+- **SELF-SOOTHING**: Rub your tummy or pat your heart and reassure your inner child. Tell them, "It will be okay. I've got you and I know you are scared. It's okay to be scared."
 
 ### Further questions ###
 - How does it not serve you to carry resentment and anger today?

@@ -30,13 +30,13 @@ This is how recovery happens!
 ### Q1) What are your beliefs about:
 - i) Yourself? Are you worthless? Are you unloveable? Are you not good enough? Are you unattractive?
 
-- ii) The meaning of your life? Eg. Do you believe there is no meaning? Is your life meaningless?
+- ii) The meaning of your life? Do you believe there is no meaning? Is your life meaningless?
 
-- iii) Death? Eg. Is there an after-life? Is there darkness for all eternity?
+- iii) Death? Is there an after-life? Is there darkness for all eternity?
 
-- iv) The world and other people? eg. Are all people selfish? Are all people bad? Is the world cruel and unforgiving?
+- iv) The world and other people? Are all people selfish? Are all people bad? Is the world cruel and unforgiving?
 
-- v) God? eg. Are they cruel? Can they provide for you? Are they out to get you?
+- v) God? Are they cruel? Can they provide for you? Are they out to get you?
 
 ### Q2) Beliefs determine our decision making, thinking, feelings and actions. For each belief in Q1, write about how these beliefs make you:
 - i) Make decisions

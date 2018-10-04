@@ -1,4 +1,4 @@
-# Step 1: Quantify the unmanageability of the addiction
+# Step 1: Admitted the unmanageability of the addiction
 
 ### Q1) What has been the cost of your addiction in terms of:
 - Number of hours spent using the addiction

@@ -28,16 +28,16 @@ If we change our core beliefs, we then impact our decision making, which then af
 This is how recovery happens!
 
 ### Q1) What are your beliefs about:
-i) Yourself? Are you worthless? Are you unloveable? Are you not good enough? Are you unattractive?
-ii) The meaning of your life? For example, do you believe there is no meaning? Is your life meaningless?
-iii) Death? For example, is there an after-life? Is there nothingness for all eternity?
-iv) The world and other people? Are all people selfish? Is the world cruel and unforgiving?
-v) God? Is there a God? If there is, are they cruel? Are they out to get you? Are they heartless?
+- i) Yourself? Are you worthless? Are you unloveable? Are you not good enough? Are you unattractive?
+- ii) The meaning of your life? For example, do you believe there is no meaning? Is your life meaningless?
+- iii) Death? For example, is there an after-life? Is there nothingness for all eternity?
+- iv) The world and other people? Are all people selfish? Is the world cruel and unforgiving?
+- v) God? Is there a God? If there is, are they cruel? Are they out to get you? Are they heartless?
 
 ### Q2) Beliefs determine our decision making, thinking, feelings and actions. For each belief in Q1, write about how these beliefs make you:
-i) Make decisions
-ii) Think
-iii) Feel
-iv) Act
+- i) Make decisions
+- ii) Think
+- iii) Feel
+- iv) Act
 
 ### Q3) Assuming these beliefs are not serving you and are causing you pain, would you be willing to change them?

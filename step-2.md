@@ -36,7 +36,7 @@ This is how recovery happens!
 
 - iv) The world and other people? Are all people selfish? Are all people bad? Is the world cruel and unforgiving?
 
-- v) God? Are they cruel? Can they provide for you? Are they out to get you?
+- v) There being a 'Higher Power'? Are they cruel? Can they provide for you? Are they out to get you?
 
 ### Q2) Beliefs determine our decision making, thinking, feelings and actions. For each belief in Q1, write about how these beliefs make you:
 - i) Make decisions

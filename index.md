@@ -1,7 +1,5 @@
 ---
-title: Recovery Plus
+title: STAR - Addiction Recovery
 ---
-# About Recovery Plus
-Recovery Plus is an innovative recovery programme that draws inspiration from Neuro-Linguistic Programmming (NLP) as well as other recovery programmes.
-
-The "Plus" simply means it is an additional perspective on recovery and is not necessarily the only way to work recovery. It can also be used in conjunction with other programmes and approaches.
+# About STAR
+STAR is an acronym for Simple Transformative Addiction Recovery and is an innovative and modern recovery programme.

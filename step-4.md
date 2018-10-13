@@ -1,4 +1,4 @@
-# Step 4: Made peace with our past
+# Step 4: Make peace with your past
 
 We often use our addictions to escape fear, anger and shame. These tend to be created from our perspectives of past events.
 
@@ -10,7 +10,7 @@ We often use our addictions to escape fear, anger and shame. These tend to be cr
 
 - **EXPLORATION**: Anger is often a protection mechanism for fear. What fear is your anger covering up?
 
-- **COMPASSION**: Everyone is doing the best they can with the resources they have available. Is it possible those you are angry towards are spiritually and/or mentally sick? Is there such thing as a perfect person? Are we all imperfect beings who have made mistakes in our lives? How might you practice compassion?
+- **COMPASSION**: Everyone is doing the best they can with the resources they have available, and everyone is fighting a battle that you may not be aware of. Is it possible those you are angry towards are spiritually and/or mentally sick? Is there such thing as a perfect person? Are we all imperfect beings who have made mistakes in our lives? Is it possible this person has had a troubled past that has led them to committing a wrong against you? How might you practice compassion?
 
 - **UNDERSTANDING**: Nobody is truly broken; everyone has a reason for the way that they are and the way that they behave. Their past programming may be helpful or unhelpful. What reasons may have driven this person's actions?
 

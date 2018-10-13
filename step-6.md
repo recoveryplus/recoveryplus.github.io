@@ -9,3 +9,10 @@
 ### Q4) How might you carry the message of hope to those who still suffer?
 
 ### Q5) How will you start living well?
+
+### Q6) How can you nurture yourself in healthy way every day:
+- Physically?
+- Emotionally?
+- Intellectually?
+- Spiritually?
+

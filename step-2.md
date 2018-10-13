@@ -27,6 +27,8 @@ If we change our core beliefs, we then impact our decision making, which then af
 
 This is how recovery happens!
 
+In order to let go and change our beliefs, we have to first have to admit that our beliefs have only got us so far.
+
 ### Q1) What are your beliefs about:
 - i) Yourself? Are you worthless? Are you unloveable? Are you not good enough? Are you unattractive?
 

@@ -7,3 +7,5 @@
 ### Q3) 'Insight without action is meaningless'. Discuss and reflect on how this might relate to your life.
 
 ### Q4) How might you carry the message of hope to those who still suffer?
+
+### Q5) How will you start living well?

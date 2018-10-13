@@ -1,4 +1,4 @@
-# Step 2: Admitted that our core beliefs were unhelpful
+# Step 2: Admit that your core beliefs were less than helpful
 
 ### Our beliefs create our feelings
 Right now your feelings are being determined by your beliefs. For example, you may believe:

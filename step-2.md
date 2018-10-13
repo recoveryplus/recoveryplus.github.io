@@ -1,4 +1,4 @@
-# Step 2: Admit that your core beliefs were less than helpful
+# Step 2: Accept that your current beliefs are causing you pain
 
 ### Our beliefs create our feelings
 Right now your feelings are being determined by your beliefs. For example, you may believe:

@@ -30,15 +30,15 @@ This is how recovery happens!
 In order to let go and change our beliefs, we have to first have to admit that our beliefs have only got us so far.
 
 ### Q1) What are your beliefs about:
-- i) Yourself? Are you worthless? Are you unloveable? Are you not good enough? Are you unattractive?
+- i) Yourself: Are you worthless? Are you unloveable? Are you not good enough? Are you unattractive?
 
-- ii) The meaning of your life? Do you believe there is no meaning? Is your life meaningless?
+- ii) The meaning of your life: Do you believe there is no meaning? Is your life meaningless?
 
-- iii) Death? Is there an after-life? Is there darkness for all eternity?
+- iii) Death? Is there an after-life: Is there darkness for all eternity?
 
-- iv) The world and other people? Are all people selfish? Are all people bad? Is the world cruel and unforgiving?
+- iv) The world and other people: Are all people selfish? Are all people bad? Is the world cruel and unforgiving?
 
-- v) There being a 'Higher Power'? Are they cruel? Can they provide for you? Are they out to get you?
+- v) There being a higher power: Does one exist for you? Are they cruel? Can they provide for you? Are they out to get you? Can good things happen by 'accident'? Are there such things as miracles?
 
 ### Q2) Beliefs determine our decision making, thinking, feelings and actions. For each belief in Q1, write about how these beliefs make you:
 - i) Make decisions
@@ -49,3 +49,5 @@ In order to let go and change our beliefs, we have to first have to admit that o
 ### Q3) For each belief in Q1, what age did you first create or believe these beliefs?
 
 ### Q4) Assuming these beliefs are not serving you and are causing you pain, would you be willing to change them?
+
+### Q5) For each belief, come up with counter-examples of where these beliefs may not always be true.

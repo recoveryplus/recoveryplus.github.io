@@ -11,6 +11,7 @@ Fundamentally, this step is about **letting go** of some of these old core belie
 
 In his book "Memories, Dreams, Reflections", Carl Jung said: "I have frequently seen people become neurotic when they content themselves with inadequate or wrong answers to the questions of life. They seek position, marriage, reputation, outward success or money, and remain unhappy and neurotic even when they have attained what they were seeking. Such people are usually confined to too narrow a spiritual horizon. Their life has not sufficient content, sufficient meaning. If they are enabled to develop into more spacious personalities, the neurosis generally disappears."
 
+## Questions
 ### Q1) Replacing the word 'neurotic' with 'addicted', discuss and reflect on how you Carl Jung's quote may apply to your life.
 
 ### Q2) Discuss and reflect on how the following relate to you:

@@ -21,7 +21,7 @@ Using the Human Experiential Model, we experience life on five major levels:
 
 Our core beliefs affect our decision making, which affects thinking, and thus feeling and actions.
 
-STAR focuses on making changes at <strong>Core Belief Level</strong>. Why?
+CORE focuses on making changes at <strong>Core Belief Level</strong>. Why?
 
 If we change our core beliefs, we then impact our decision making, which then affects our thinking, feeling and doing.
 

@@ -1,9 +1,13 @@
 # Step 1: Admit the unmanageability of the addiction
 
-## 
+## Surrender and honesty are key
 The first step of CORE is to admit what the addiction has cost you, and to admit that you have lost control.
 
-It is about accepting that your usage has gotten out of control, that it has cost you too much personally, financially, physically, mentally, emotionally and even spiritually. It is about surrendering and accepting that you are sick and tired of being sick and tired - and you need help.
+It is about accepting that your usage has gotten out of control, that it has cost you too much personally, financially, physically, mentally, emotionally and even spiritually.
+
+Imagine the addiction is an army that has you pinned down. You are frantically trying to fight it, but no matter what tactics and techniques you use, the army only seems to get bigger and closer to destroying you! Thus, you are now waving a white flag.
+
+This step is about surrendering and accepting that you are sick and tired of being sick and tired and that you need help.
 
 One important distinction of CORE is that you are simply admitting that you have a problem - but you are not the addiction. Admitting that you **have** an addiction does not make you an 'addict'.
 

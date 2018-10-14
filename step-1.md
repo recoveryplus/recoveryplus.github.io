@@ -15,6 +15,7 @@ In fact, a principle of CORE is to not label yourself as an addict as this only 
 
 In CORE, you can simply say "I have an addiction but I am recovering".
 
+## Questions
 ### Q1) What has been the cost of your addiction in terms of:
 - Number of hours spent using the addiction
 - Amount of money spent chasing the next high/fix

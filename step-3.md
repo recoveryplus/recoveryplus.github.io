@@ -20,7 +20,11 @@ In his book "Memories, Dreams, Reflections", Carl Jung said:
 i) What you believe becomes your reality.
 ii) What you believe you will find evidence to support.
 
-### Q3) Given that your previous beliefs created how you feel, what would you now like to believe about:
+### Q3) Consider the image below. What could it mean? For example, it could be a chart, or a crossroad. What other interpretations could there be?
+
+### Q4) In Q3, you have demonstrated that there are a number of interpretations for a given stimuli eg. a picture. Write about how this phenomena could apply to conclusions you have made about past events in your life and the beliefs you have created.
+
+### Q5) Given that your previous beliefs created how you feel, what would you now like to believe about:
 - yourself?
 - the meaning of your life?
 - death?
@@ -28,15 +32,15 @@ ii) What you believe you will find evidence to support.
 - other people in general?
 - A Higher Power?
 
-### Q4) For each new belief you would like to have, write a list of supporting evidence to support why this is belief is true for you.
+### Q6) For each new belief you would like to have, write a list of supporting evidence to support why this is belief is true for you.
 
 If you cannot think of any, do not fret; as you start to sincerely believe these new beliefs, you will naturally begin to find evidence to support them.
 
-### Q5) 'Sometimes bad things happen to good people'. How does this relate to you? Who or what causes these 'bad things', if anything or anyone at all?
+### Q7) 'Sometimes bad things happen to good people'. How does this relate to you? Who or what causes these 'bad things', if anything or anyone at all?
 
-### Q6) Reflecting on your answer to Q5 - how do you know for sure?
+### Q8) Reflecting on your answer to Q5 - how do you know for sure?
 
-### Q7) 'Everything works out in the end. If it hasn't worked out yet, it's not the end'. Now make a list of all of your previous crises, and write down how they were resolved, or what good came out of the aftermath. After making this list, what conclusions or interpretations do you come to?
+### Q9) 'Everything works out in the end. If it hasn't worked out yet, it's not the end'. Now make a list of all of your previous crises, and write down how they were resolved, or what good came out of the aftermath. After making this list, what conclusions or interpretations do you come to?
 For example, you may conclude that:
 - there is evidence of a greater force at work
 - you have good fortune
